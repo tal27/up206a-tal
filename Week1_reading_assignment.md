@@ -1,4 +1,5 @@
-LA City Council wants Pacoima’s Whiteman Airport to close
+**LA City Council wants Pacoima’s Whiteman Airport to close**
+
 https://www.dailynews.com/2020/12/10/la-city-council-wants-pacoimas-whiteman-airport-to-close/
 
 The Los Angeles City Council voted unanimously on December 9, 2020 on a resolution to close the 182-acre Whiteman Airport in the Los Angeles neighborhood of Pacoima. In addition to community safety, environmental and economic justice concerns galvanized community members to call for the airport’s closure and led to the resolution. The city will conduct an environmental analysis and an economic analysis of the airport site to evaluate potential uses.
